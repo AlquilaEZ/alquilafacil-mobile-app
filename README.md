@@ -1,1 +1,0 @@
-# alquilafacil-mobile-app
